@@ -15,3 +15,12 @@ This file will explain how magic is used in the universe of Valterra.
 
 ## Magical Seals
 
+## Transportation Between Worlds
+
+## Time Rifts
+
+## Common Magic
+
+### How is Magic Performed?
+
+### How is Magic Viewed?
